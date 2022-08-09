@@ -1,5 +1,5 @@
 ### Hi there 👋
-#My name is Erick 😄
+My name is Erick 😄
 
 🌱I am a calm and patient person, I totally value knowledge. 
 👯I'm looking for challenges to improve my knowledge and provide great individual experiences and teamwork.
